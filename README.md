@@ -10,3 +10,4 @@ Tatang Syubagja
 ![msi](https://user-images.githubusercontent.com/56962150/70842984-ac54f300-1e65-11ea-922e-1a77919fc3da.jpg)
 ![samsung](https://user-images.githubusercontent.com/56962150/70842985-b119a700-1e65-11ea-8d03-e7f5b90d9f1b.jpg)
 ![toshiba](https://user-images.githubusercontent.com/56962150/70842987-b545c480-1e65-11ea-8c97-0834478b13d6.jpg)
+![tatang](https://user-images.githubusercontent.com/56962150/70846944-99f4ac80-1e99-11ea-871e-7fe1b86f6bb7.jpg)
